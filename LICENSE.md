@@ -1,4 +1,4 @@
-
+rare Script for Parallels Desktop for macOS - privacy-protection and window-management is the best Parallels Desktop for macOS script, featuring privacy-protection and
 
 
 
